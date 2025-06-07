@@ -1,6 +1,4 @@
-<p align="center">
-𖹭.ᐟ ──୨ৎ──── ────୨ৎ──── ────୨ৎ── 𖹭.ᐟ
-</p>
+
 
 <p align="center">
 heyyy (๑>؂•̀๑)
@@ -11,12 +9,10 @@ heyyy (๑>؂•̀๑)
 </p>
 
 <p align="center">
-6teen ♡ blk ♡ any prns
+6teen + blk + any prns
 </p>
 
-<p align="center">
-𖹭.ᐟ ──୨ৎ──── ────୨ৎ──── ────୨ৎ── 𖹭.ᐟ
-</p>
+
 
 <!--
 **mmwahhh/mmwahhh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
